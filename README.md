@@ -25,6 +25,6 @@
                                         don't talk to me if you're going to project your ships onto me
                                      i hide/block bill cosplayers or anyone who makes me uncomfortable
                                         do not sit close/kiss/cuddle with me if i do not know you !
-                                                ⋆˙⟡ —        𝙗𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙘𝙧𝙞𝙩𝙚𝙧𝙞𝙖
+                                      ⋆˙⟡ —  𝘿𝙉𝙄 𝙨𝙝𝙞𝙥𝙨, 𝙧𝙥𝙨, 𝙛𝙪𝙟𝙤𝙨𝙝𝙞, 𝙝𝙞𝙢𝙚𝙙𝙖𝙣𝙨𝙝𝙞 + 𝙗𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙘𝙧𝙞𝙩𝙚𝙧𝙞𝙖
                                                                                 
                                                                           ───〃★
