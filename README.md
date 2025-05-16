@@ -10,9 +10,16 @@
 
                                     i mostly make gf cosplays and chill by the ʙᴀᴋᴇʀʏ + ʟɪʙʀᴀʀʏ. if you're
                                               chill and not a weirdo, don't be afraid to say hi ! ╭
-                                                                          
-                               i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
-                                          studying, or writing and might not see what you say. 
+
+                                          i'm not very talkative with people i've just met, so
+                                      please be patient and let me get comfortable with you first !
+
+                                       and please, don't ask for my socials. i don't give them out to 
+                                        people on pony town for personal reasons and would appreciate
+                                                         if you respected that. ^^
+                                                           
+                                 i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
+                                            studying, or writing and might not see what you say. 
                                                   don't send me weird messages either. 𓂃₊ ⊹
                                                           
                                          don't talk to me if you're going to project your ships on me
