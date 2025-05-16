@@ -1,9 +1,10 @@
 
 
-                                                                          
+                                
+
               
 
-                                                                     ━━━━⊱⋆⊰━━━━   
+                                                                    ━━━━⊱⋆⊰━━━━   
                                                      ┆ 𝙝𝙚𝙡𝙡𝙤, 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 1̲9̲ ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆
                                               my main fandom is gravity falls, but i enjoy other media 
 
