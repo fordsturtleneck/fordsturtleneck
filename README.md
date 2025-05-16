@@ -22,7 +22,7 @@
                                             studying, or writing and might not see what you say. 
                                                   don't send me weird messages either. 𓂃₊ ⊹
                                                           
-                                         don't talk to me if you're going to project your ships on me
+                                        don't talk to me if you're going to project your ships onto me
                                      i hide/block bill cosplayers or anyone who makes me uncomfortable
                                         do not sit close/kiss/cuddle with me if i do not know you !
                                                 ⋆˙⟡ —      basic DNI criteria
