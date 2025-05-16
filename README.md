@@ -12,11 +12,11 @@
                                                                           
                                      i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
                                               studying, or writing and might not see what you say. 
-                                                         don't send me weird messages either. 𓂃₊ ⊹
+                                                        don't send me weird messages either. 𓂃₊ ⊹
                                                           
                                             don't talk to me if you're going to project your ships on me
                                         i hide/block bill cosplayers or anyone who makes me uncomfortable
                                               do not sit close/kiss/cuddle with me if i do not know you
-                                                    ⋆˙⟡ —         basic DNI criteria
+                                                    ⋆˙⟡ —        basic DNI criteria
                                                                                 
                                                                                 ───〃★
