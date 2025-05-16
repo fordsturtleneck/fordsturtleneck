@@ -25,6 +25,6 @@
                                         don't talk to me if you're going to project your ships onto me
                                      i hide/block bill cosplayers or anyone who makes me uncomfortable
                                         do not sit close/kiss/cuddle with me if i do not know you !
-                                                ⋆˙⟡ —      basic DNI criteria
+                                                ⋆˙⟡ —       basic DNI criteria
                                                                                 
                                                                           ───〃★
