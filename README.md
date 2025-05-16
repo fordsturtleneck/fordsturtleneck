@@ -11,7 +11,7 @@
                                       i mostly make gf cosplays or walk around the map. if you're
                                                   chill, don't be afraid to say hi ╭
                                                                           
-                                     i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
+                               i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
                                           studying, or writing and might not see what you say. 
                                                   don't send me weird messages either. 𓂃₊ ⊹
                                                           
