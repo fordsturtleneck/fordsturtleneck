@@ -4,8 +4,8 @@
  ![Image](https://github.com/user-attachments/assets/31ddf6d3-88ff-47ec-b39d-cbdabc014702)
               
 
-                                                             ━━━━⊱⋆⊰━━━━   
-                                                ┆ 𝙝𝙚𝙡𝙡𝙤, 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 1̲9̲ ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆
+                                                              ━━━━⊱⋆⊰━━━━   
+                                                 ┆ 𝙝𝙚𝙡𝙡𝙤, 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 1̲9̲ ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆
                                         my main fandom is gravity falls, but i enjoy other media 
 
                                     i mostly make gf cosplays and chill by the ʙᴀᴋᴇʀʏ + ʟɪʙʀᴀʀʏ. if you're
