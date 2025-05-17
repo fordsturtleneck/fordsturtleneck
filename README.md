@@ -7,26 +7,28 @@
               
 
                                                                 ━━━━⊱⋆⊰━━━━   
-                                                 ┆ 𝙝𝙚𝙡𝙡𝙤, 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 1̲9̲ ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆
-                                        my main fandom is gravity falls, but i enjoy other media 
+   <p align="center">                                              ┆ 𝙝𝙞𝙮𝙖 !! 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 𝟷𝟿 ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆
+                                                  my main fandom is gravity falls, but i enjoy other types of media 
 
-                                    i mostly make gf cosplays and chill by the ʙᴀᴋᴇʀʏ + ʟɪʙʀᴀʀʏ. if you're
+  <p align="center">                              i mostly make gf cosplays and chill by the ʙᴀᴋᴇʀʏ + ʟɪʙʀᴀʀʏ. if you're
                                               chill and not a weirdo, don't be afraid to say hi ! ╭
 
-                                          i'm not very talkative with people i've just met, so
+   <p align="center">                                       i'm not very talkative with people i've just met, so
                                       please be patient and let me get comfortable with you first !
 
-                                       and please, don't ask for my socials. i don't give them out to 
+<p align="center">                                  and please, don't ask for my socials. i don't give them out to 
                                         people on pony town for personal reasons and would appreciate
                                                          if you respected that. ^^
                                                            
-                                 i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
+<p align="center">                                 i'd prefer if you whisper to int. i'm occasionally off-tab either drawing,
                                             studying, or writing and might not see what you say. 
                                                   don't send me weird messages either. 𓂃₊ ⊹
                                                           
-                                        don't talk to me if you're going to project your ships onto me
-                                     i hide/block bill cosplayers or anyone who makes me uncomfortable
-                                        do not sit close/kiss/cuddle with me if i do not know you !
-                                      ⋆˙⟡ —  𝘿𝙉𝙄 𝙨𝙝𝙞𝙥𝙨, 𝙧𝙥𝙨, 𝙛𝙪𝙟𝙤𝙨𝙝𝙞, 𝙝𝙞𝙢𝙚𝙙𝙖𝙣𝙨𝙝𝙞 + 𝙗𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙘𝙧𝙞𝙩𝙚𝙧𝙞𝙖
+<p align="center">                                        don't talk to me if you're going to project your ships onto me just because of my cosplay.
+  
+   <p align="center">                                     i unapologetically hide/block bill cosplayers or anyone who makes me uncomfortable.
+     
+   <p align="center">                                      do not sit close/kiss/cuddle with me if i do not know you well enough!
+                                      ⋆˙⟡ —  𝘿𝙉𝙄 𝙨𝙝𝙞𝙥𝙨, 𝙧𝙥𝙨, 𝙥𝙧𝙤𝙨𝙝𝙞𝙥, 𝙛𝙪𝙟𝙤𝙨𝙝𝙞, 𝙝𝙞𝙢𝙚𝙙𝙖𝙣𝙨𝙝𝙞 + 𝙗𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙘𝙧𝙞𝙩𝙚𝙧𝙞𝙖
                                                                                 
                                                                           ───〃★
