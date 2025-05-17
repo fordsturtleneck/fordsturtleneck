@@ -12,7 +12,7 @@
   <p align="center">   my main fandom is gravity falls, but i enjoy other types of media. 
 
   <p align="center">                              i mostly make gf cosplays and chill by the ʙᴀᴋᴇʀʏ + ʟɪʙʀᴀʀʏ. if you're
-                                              chill and not a weirdo, don't be afraid to say hi ! ╭
+                                              cool and not a weirdo, don't be afraid to say hi ! ╭
 
    <p align="center">                                       i'm not very talkative with people i've just met, so
                                       please be patient and let me get comfortable with you first !
