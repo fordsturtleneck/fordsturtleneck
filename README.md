@@ -7,8 +7,9 @@
               
 
                                                                 ━━━━⊱⋆⊰━━━━   
-   <p align="center">                                              ┆ 𝙝𝙞𝙮𝙖 !! 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 𝟷𝟿 ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆
-                                                  my main fandom is gravity falls, but i enjoy other types of media. 
+   <p align="center">                                              ┆ 𝙝𝙞𝙮𝙖 !! 𝙬𝙚𝙡𝙘 𝙩𝙤 𝙢𝙮 𝙥𝙖𝙜𝙚 ┆ 𝟷𝟿 ┆ 𝙞𝙣𝙩𝙥-𝙩 ┆ 𝚊𝚛𝚝𝚒𝚜𝚝 + 𝚊𝚗𝚒𝚖𝚊𝚝𝚘𝚛 ┆ 
+                                                  
+  <p align="center">   my main fandom is gravity falls, but i enjoy other types of media. 
 
   <p align="center">                              i mostly make gf cosplays and chill by the ʙᴀᴋᴇʀʏ + ʟɪʙʀᴀʀʏ. if you're
                                               chill and not a weirdo, don't be afraid to say hi ! ╭
