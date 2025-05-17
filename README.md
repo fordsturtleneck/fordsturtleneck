@@ -28,7 +28,7 @@
   
    <p align="center">                                     i unapologetically hide/block bill cosplayers or anyone who makes me uncomfortable.
      
-   <p align="center">                                      do not sit close/kiss/cuddle with me if i do not know you well enough!
+   <p align="center">                                      do not sit close/kiss/cuddle with me if i do not know you well enough !
                                       ⋆˙⟡ —  𝘿𝙉𝙄 𝙨𝙝𝙞𝙥𝙨, 𝙧𝙥𝙨, 𝙥𝙧𝙤𝙨𝙝𝙞𝙥, 𝙛𝙪𝙟𝙤𝙨𝙝𝙞, 𝙝𝙞𝙢𝙚𝙙𝙖𝙣𝙨𝙝𝙞 + 𝙗𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙘𝙧𝙞𝙩𝙚𝙧𝙞𝙖
                                                                                 
                                                                           ───〃★
