@@ -25,7 +25,7 @@
                                             studying, or writing and might not see what you say. 
                                                   don't send me weird messages either. 𓂃₊ ⊹
                                                           
-<p align="center">                                        don't talk to me if you're going to project your headcanons/ships onto me just because of my cosplay.
+<p align="center">                                        don't talk to me if you're going to project your headcanons/ships onto me just because of my cosplay. (𝗳𝗶𝗱𝗱𝗹𝗲𝗳𝗼𝗿𝗱 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝗲𝗿𝘀 𝗮𝗿𝗲 𝗼𝗻 𝘁𝗵𝗶𝗻 𝗶𝗰𝗲.)
   
    <p align="center">                                     i unapologetically hide/block bill cosplayers, anyone i don't like or people who make me uncomfortable.
      
