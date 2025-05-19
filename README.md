@@ -3,7 +3,15 @@
                             
  <p align="center">
   <img width="460" height="300" src="https://github.com/user-attachments/assets/c93c6617-584d-4e9e-9f1f-7f19b5bdf830">
-
+ <p align="center">       ˗ˏˋ ★ ˎˊ˗
+ <p align="center">  ⌞ - 𝘺𝘰𝘶𝘳 𝘢𝘷𝘦𝘳𝘢𝘨𝘦 𝘨𝘳𝘢𝘷𝘪𝘵𝘺 𝘧𝘢𝘭𝘭𝘴 𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘦𝘳 - ⌝ 
+ <p align="center"> _______________________________________________________
+ <p align="center"> 𓉘 ┊ 𝟭𝟴+ ┊  ♎︎︎  ┊  INTP-T  ┊ - 𓉝 
+ <p align="center"> 𝘿𝙉𝙄 - billford + bill apologists, fiddauthor, fujoshi, himedanshi, proship
+ <p align="center"> ╰┈➤ my two favorite characters are both stan and ford (𝙨𝙝𝙤𝙘𝙠𝙞𝙣𝙜)
+ <p align="center"> 𝘥𝘰 𝘯𝘰𝘵 𝘱𝘳𝘰𝘫𝘦𝘤𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘪𝘱𝘴 𝘰𝘯𝘵𝘰 𝘮𝘦 𝘫𝘶𝘴𝘵 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘸𝘩𝘰 𝘪'𝘮 𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘪𝘯𝘨. ( 𝘢𝘭𝘴𝘰, 𝘥𝘰 𝘯𝘰𝘵 𝘧𝘭𝘪𝘳𝘵. )
+ <p align="center"> 
+ 
               
 
                                             
