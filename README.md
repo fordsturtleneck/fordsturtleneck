@@ -12,6 +12,7 @@
  <p align="center"> 𝘥𝘰 𝘯𝘰𝘵 𝘱𝘳𝘰𝘫𝘦𝘤𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘪𝘱𝘴 𝘰𝘯𝘵𝘰 𝘮𝘦 𝘫𝘶𝘴𝘵 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘸𝘩𝘰 𝘪'𝘮 𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘪𝘯𝘨. ( 𝘢𝘭𝘴𝘰, 𝘥𝘰 𝘯𝘰𝘵 𝘧𝘭𝘪𝘳𝘵. )
  <p align="center"> i block/hide freely if i do not like your vibe, or if you're cosplaying bill cipher
  <p align="center"> <img width="460" height="300" src="https://github.com/user-attachments/assets/3defef43-0aec-42e8-9727-f7920400fa18">
+ <p align="center"> ✮⋆˙
 
  
               
