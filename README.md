@@ -10,10 +10,10 @@
   <p align="center"> ╰┈➤ my two favorite characters are both stan and ford (𝙨𝙝𝙤𝙘𝙠𝙞𝙣𝙜)
  <p align="center"> 𝘥𝘰 𝘯𝘰𝘵 𝘱𝘳𝘰𝘫𝘦𝘤𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘪𝘱𝘴 𝘰𝘯𝘵𝘰 𝘮𝘦 𝘫𝘶𝘴𝘵 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘸𝘩𝘰 𝘪'𝘮 𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘪𝘯𝘨.
   <p align="center"> 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙢𝙮 𝙨𝙠𝙞𝙣𝙨 𝙤𝙧 𝙥𝙤𝙨𝙩 𝙩𝙝𝙚𝙢 𝙖𝙣𝙮𝙬𝙝𝙚𝙧𝙚. 
-<p align="center"> flirting/petnames will result in an immediate block.
+<p align="center"> flirting, cuddling, kissing and petnames will result in an immediate block.
 <p align="center"> please, do not ask for my socials. i do not give them out to people on pt for personal reasons.
    <p align="center"> i block/hide freely if i do not like your vibe, or if you're cosplaying bill cipher
-  <p align="center"> 𝘿𝙉𝙄 - billford + bill apologists, fiddauthor, fujoshi, himedanshi, proship
+  <p align="center"> 𝘿𝙉𝙄 - billford + bill apologists, fiddauthor, fujoshi, himedanshi, proship, if under 18
  <p align="center"> <img width="460" height="300" src="https://github.com/user-attachments/assets/3defef43-0aec-42e8-9727-f7920400fa18">
  <p align="center"> ✮⋆˙
 
