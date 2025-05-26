@@ -14,7 +14,7 @@
 <p align="center"> please, do not ask for my socials. i do not give them out to people on pt for personal reasons.
    <p align="center"> i block/hide freely if i do not like your vibe, or if you're cosplaying bill cipher
   <p align="center"> 𝘿𝙉𝙄 - billford + bill apologists, fujoshi, himedanshi, proship, if under 18
-  <p align="center"> fiddauthor shippers are on thin ice. you can talk to me, just don't talk about/mention the ship around me
+  <p align="center"> fiddauthor / fiddlestan shippers are on thin ice. you can talk to me, just don't talk about/mention the ship around me
  <p align="center"> <img width="460" height="300" src="https://github.com/user-attachments/assets/3defef43-0aec-42e8-9727-f7920400fa18">
  <p align="center"> ✮⋆˙
 
