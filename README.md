@@ -22,6 +22,8 @@
   <p align="center"> bill cosplayers, bill apologists, billford + billstan, proship/comship/darkship,
   <p align="center"> fujoshi + himedanshi, if under 18
   <p align="center"> fiddauthor / fiddlestan - you may interact, but i do not want to hear about your ships.
+  <p align="center">
+  <img width="460" height="300" src="https://github.com/user-attachments/assets/6d61a889-ced4-4033-92a7-dc4b77fb37d0">
   <p align="center"> ᯓ☆
 
   
