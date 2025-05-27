@@ -6,7 +6,7 @@
  <p align="center">       ˗ˏˋ ★ ˎˊ˗
  <p align="center"> - 𝘩𝘪𝘺𝘢 !! 𝘪'𝘮 𝘫𝘶𝘴𝘵 𝘺𝘰𝘶𝘳 𝘢𝘷𝘦𝘳𝘢𝘨𝘦 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 𝙛𝙖𝙣/𝙘𝙤𝙨𝙥𝙡𝙖𝙮𝙚𝙧. ^^ -
  <p align="center"> ⋆˙⟡ ⌞ - 𝙩𝙖𝙡𝙠 𝙩𝙤 𝙢𝙚 𝙖𝙗𝙤𝙪𝙩 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 ! - ⌝ ⋆˙⟡
-  <p align="center"> 【  𝟭𝟵 / /    𝘐𝘕𝘛𝘗-𝘛    / / ♎︎︎  】
+  <p align="center">  ☆ -【  𝟭𝟵 / /    𝘐𝘕𝘛𝘗-𝘛    / / ♎︎︎  】- ☆
   <p align="center"> 𝘪𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘤𝘩𝘪𝘭𝘭, 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘢𝘧𝘳𝘢𝘪𝘥 𝘵𝘰 𝘴𝘢𝘺 𝘩𝘪 !
   <p align="center"> i'm a bit stand-offish at first because it takes time
   <p align="center"> for me to get comfortable with someone new.
