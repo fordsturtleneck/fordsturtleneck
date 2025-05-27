@@ -13,10 +13,18 @@
   <p align="center"> 𝗽𝗹𝗲𝗮𝘀𝗲, 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀 𝗼𝗿 𝗽𝗼𝘀𝘁 𝘁𝗵𝗲𝗺 𝗮𝗻𝘆𝘄𝗵𝗲𝗿𝗲.
   <p align="center"> ┆ ⸝⸝ 𝘽𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 ! ! ⸝⸝ ┆
   <p align="center"> / if i'm not responding, it's because i am afk. /
-  <p align="center"> / i'd appreciate it if you didn't kiss or cuddle me. /
+  <p align="center"> / i'd appreciate it if you didn't flirt, kiss or cuddle me. /
   <p align="center">  / it creeps me out, especially when i don't know you. /
   <p align="center"> / do not project your ships + headcanons onto me /
-  <p align="center"> / all users must be 18 or older. minors, get lost. /
+  <p align="center"> / all users must be 18 or older. /
+  <p align="center"> / i may cosplay, but that doesn't mean i'm open to 𝗥𝗣 ! /
+  <p align="center"> .ᐟ.ᐟ ― 𝘿𝙉𝙄 𝙇𝙄𝙎𝙏 ― .ᐟ.ᐟ
+  <p align="center"> bill cosplayers, bill apologists, billford + billstan, proship/comship/darkship,
+  <p align="center"> fujoshi + himedanshi, if under 18
+  <p align="center"> fiddauthor / fiddlestan - you may interact, but i do not want to hear about your ships.
+  <p align="center"> ᯓ☆
+
+  
   
    
   
