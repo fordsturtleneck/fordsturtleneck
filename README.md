@@ -4,7 +4,15 @@
  <p align="center">
   <img width="460" height="300" src="https://github.com/user-attachments/assets/c93c6617-584d-4e9e-9f1f-7f19b5bdf830">
  <p align="center">       ˗ˏˋ ★ ˎˊ˗
- <p align="center"> 
+ <p align="center"> 𝘩𝘪𝘺𝘢 !! 𝘪'𝘮 𝘫𝘶𝘴𝘵 𝘺𝘰𝘶𝘳 𝘢𝘷𝘦𝘳𝘢𝘨𝘦 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 𝙛𝙖𝙣/𝙘𝙤𝙨𝙥𝙡𝙖𝙮𝙚𝙧. ^^
+ <p align="center"> ⌞ - 𝙩𝙖𝙡𝙠 𝙩𝙤 𝙢𝙚 𝙖𝙗𝙤𝙪𝙩 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 ! - ⌝
+  <p align="center"> i'm a bit stand-offish at first because it takes time
+  <p align="center"> for me to get comfortable with someone new.
+  
+  
+ 
+ 
+ 
 
  
               
