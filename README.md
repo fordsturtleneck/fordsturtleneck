@@ -8,6 +8,8 @@
  <p align="center"> ⌞ - 𝙩𝙖𝙡𝙠 𝙩𝙤 𝙢𝙚 𝙖𝙗𝙤𝙪𝙩 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 ! - ⌝
   <p align="center"> i'm a bit stand-offish at first because it takes time
   <p align="center"> for me to get comfortable with someone new.
+  <p align="center"> 【  𝟭𝟵 / /  𝘐𝘕𝘛𝘗-𝘛 / /    】
+  
   
   
  
