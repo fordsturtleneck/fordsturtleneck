@@ -12,7 +12,7 @@
   <p align="center"> 𝗽𝗹𝗲𝗮𝘀𝗲, 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀 𝗼𝗿 𝗽𝗼𝘀𝘁 𝘁𝗵𝗲𝗺 𝗮𝗻𝘆𝘄𝗵𝗲𝗿𝗲.
   <p align="center"> ┆ ⸝⸝ 𝘽𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 ! ! ⸝⸝ ┆
   <p align="center"> / if i'm not responding, it's because i am afk. /
-  <p align="center"> / i'd appreciate it if you didn't flirt, kiss or cuddle me. ( it creeps me out, especially when i don't know you. ) /
+  <p align="center"> / i'd appreciate it if you don't flirt, kiss or cuddle me. ( it creeps me out, especially when i don't know you. ) /
   <p align="center">  / please, do not ask for my socials unless i give them to you myself. ^^" /
   <p align="center"> / do not project your ships + headcanons onto me. /
   <p align="center"> / all users must be 18 or older. /
