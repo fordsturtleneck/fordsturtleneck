@@ -17,6 +17,10 @@
   <p align="center"> / do not project your ships + headcanons onto me. /
   <p align="center"> / all users must be 18 or older. /
   <p align="center"> / i may cosplay, but that doesn't mean i'm open to 𝗥𝗣 ! /
+   <p align="center"> / if you see me in-game walking around, do not chase me around, whisper me instead ! i'll be more willing to talk. / 
+  <p align="center"> / do not talk to me if you're a bandwagoner, or just a casual fan of gravity falls. /
+  <p align="center">  ( i want to talk to people who are just as interested in it as me ! so save us both the trouble. )
+  <p align="center"> / i do not interact first because of social anxiety. if you want to talk to me, i'd prefer if you whispered me. /
   <p align="center"> .ᐟ.ᐟ ― 𝘿𝙉𝙄 𝙇𝙄𝙎𝙏 ― .ᐟ.ᐟ
   <p align="center"> bill cosplayers, bill apologists, billford + billstan, proship/comship/darkship,
   <p align="center"> fujoshi + himedanshi, if under 18
