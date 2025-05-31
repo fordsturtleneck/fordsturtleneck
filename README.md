@@ -22,7 +22,7 @@
   <p align="center">  ( i want to talk to people who are just as interested in it as me ! so save us both the trouble. )
   <p align="center"> / i do not interact first because of social anxiety. if you want to talk to me, i'd prefer if you whispered me. /
   <p align="center"> .ᐟ.ᐟ ― 𝘿𝙉𝙄 𝙇𝙄𝙎𝙏 ― .ᐟ.ᐟ
-  <p align="center"> bill cosplayers, bill apologists, billford + billstan, proship/comship/darkship,
+  <p align="center"> bill cosplayers, bill apologists, billford + billstan (y'all are disgusting </3), proship/comship/darkship,
   <p align="center"> fujoshi + himedanshi, if under 18
   <p align="center"> fiddauthor / fiddlestan - you may interact, but i do not want to hear about your ships.
   <p align="center">
