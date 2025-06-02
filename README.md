@@ -21,7 +21,7 @@
   <p align="center">  ( i want to talk to people who are just as interested in it as me ! so save us both the trouble. )
   <p align="center"> / i do not interact first because of social anxiety. if you want to talk to me, i'd prefer if you whispered me. /
   <p align="center"> .ᐟ.ᐟ ― 𝘿𝙉𝙄 𝙇𝙄𝙎𝙏 ― .ᐟ.ᐟ
-  <p align="center"> bill cosplayers, bill apologists, billford + billstan, proship/comship/darkship,
+  <p align="center"> bill cosplayers, bill kins, bill apologists, billford + billstan, proship/comship/darkship,
   <p align="center"> fujoshi + himedanshi, if under 18, if you victim blame ford or stan
   <p align="center"> yumeship / fiddauthor / fiddlestan - you may interact, but i do not want to hear about your ships.
   <p align="center"> 𝘪 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺 𝘰𝘧𝘵𝘦𝘯. 𝘪𝘧 𝘪 𝘥𝘰, 𝘪𝘵 𝘮𝘢𝘺 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘮𝘺 𝘥𝘯𝘪 𝘰𝘳 𝘪 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘵𝘩𝘪𝘯𝘬 𝘰𝘶𝘳 𝘱𝘦𝘳𝘴𝘰𝘯𝘢𝘭𝘪𝘵𝘪𝘦𝘴 𝘮𝘦𝘴𝘩 𝘸𝘦𝘭𝘭 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. 𝘯𝘰 𝘩𝘢𝘳𝘥 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴 !
