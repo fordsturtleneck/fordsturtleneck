@@ -18,7 +18,7 @@
   <p align="center"> / i may cosplay, but that doesn't mean i'm open to 𝗥𝗣 ! /
    <p align="center"> / if you see me in-game walking around, do not chase me down. whisper me instead ! i'll be more willing to talk. / 
   <p align="center"> / do not talk to me if you're a bandwagoner, or just a casual fan of gravity falls. /
-  <p align="center">  ( i want to talk to people who are just as interested in it as me ! so save us both the trouble. )
+  <p align="center">  ( 𝘪 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘵𝘢𝘭𝘬 𝘵𝘰 𝘱𝘦𝘰𝘱𝘭𝘦 𝘸𝘩𝘰 𝘢𝘳𝘦 𝘫𝘶𝘴𝘵 𝘢𝘴 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘦𝘥 𝘪𝘯 𝘪𝘵 𝘢𝘴 𝘮𝘦 ! 𝘴𝘰 𝘴𝘢𝘷𝘦 𝘶𝘴 𝘣𝘰𝘵𝘩 𝘵𝘩𝘦 𝘵𝘳𝘰𝘶𝘣𝘭𝘦. )
   <p align="center"> / i do not interact first because of social anxiety. if you want to talk to me, i'd prefer if you whispered me. /
   <p align="center"> .ᐟ.ᐟ ― 𝘿𝙉𝙄 𝙇𝙄𝙎𝙏 ― .ᐟ.ᐟ
   <p align="center"> bill cosplayers, bill kins, bill apologists, billford + billstan, proship/comship/darkship,
