@@ -22,10 +22,10 @@
   <p align="center"> / i do not interact first because of social anxiety. if you want to talk to me, i'd prefer if you whispered me. /
   <p align="center"> .ᐟ.ᐟ ― 𝘿𝙉𝙄 𝙇𝙄𝙎𝙏 ― .ᐟ.ᐟ
   <p align="center"> bill cosplayers, bill apologists, billford + billstan, proship/comship/darkship,
-  <p align="center"> fujoshi + himedanshi, if under 18
+  <p align="center"> fujoshi + himedanshi, if under 18, if you victim blame ford or stan
   <p align="center"> yumeship / fiddauthor / fiddlestan - you may interact, but i do not want to hear about your ships.
   <p align="center"> 𝘪 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺 𝘰𝘧𝘵𝘦𝘯. 𝘪𝘧 𝘪 𝘥𝘰, 𝘪𝘵 𝘮𝘢𝘺 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘮𝘺 𝘥𝘯𝘪 𝘰𝘳 𝘪 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘵𝘩𝘪𝘯𝘬 𝘰𝘶𝘳 𝘱𝘦𝘳𝘴𝘰𝘯𝘢𝘭𝘪𝘵𝘪𝘦𝘴 𝘮𝘦𝘴𝘩 𝘸𝘦𝘭𝘭 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. 𝘯𝘰 𝘩𝘢𝘳𝘥 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴 !
-  <p align="center"> and please, don't ask why i blocked someone or your friends. you won't be getting a response. i do not owe anybody an explanation for my boundaries.
+  <p align="center"> and please, don't ask why i blocked someone or your friends. i do not owe anybody an explanation for my boundaries.
   <img width="460" height="300" src="https://github.com/user-attachments/assets/6d61a889-ced4-4033-92a7-dc4b77fb37d0">
   <p align="center"> ᯓ☆
 
