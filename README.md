@@ -6,7 +6,7 @@
  <p align="center">       ˗ˏˋ ★ ˎˊ˗
  <p align="center"> - 𝘩𝘪𝘺𝘢 !! 𝘪'𝘮 𝘫𝘶𝘴𝘵 𝘺𝘰𝘶𝘳 𝘢𝘷𝘦𝘳𝘢𝘨𝘦 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 𝙛𝙖𝙣/𝙘𝙤𝙨𝙥𝙡𝙖𝙮𝙚𝙧. ^^ -
  <p align="center"> ⋆˙⟡ ⌞ - 𝙩𝙖𝙡𝙠 𝙩𝙤 𝙢𝙚 𝙖𝙗𝙤𝙪𝙩 𝙜𝙧𝙖𝙫𝙞𝙩𝙮 𝙛𝙖𝙡𝙡𝙨 ! - ⌝ ⋆˙⟡
-  <p align="center">  ☆ -【  𝟭𝟵 / /    𝘐𝘕𝘛𝘗-𝘛    / / ♎︎︎  • ☾ ♍︎ • ↑ ♏︎ 】- ☆
+  <p align="center">  ☆ -【  𝟭𝟵 / /    𝘐𝘕𝘛𝘗-𝘛    / / ♎︎︎  • ☾ ♍︎ • ↑ ♏︎  】- ☆
   <p align="center"> 𝘪𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘤𝘩𝘪𝘭𝘭, 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘢𝘧𝘳𝘢𝘪𝘥 𝘵𝘰 𝘴𝘢𝘺 𝘩𝘪 !
   <p align="center"> i'm a bit standoffish at first because it takes time for me to get comfortable with someone new.
   <p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀, 𝗽𝗿𝗼𝗳𝗶𝗹𝗲, 𝗼𝗿 𝗼𝗰𝘀. 𝗶 𝘄𝗼𝗿𝗸 𝗵𝗮𝗿𝗱 𝗼𝗻 𝗲𝘃𝗲𝗿𝘆𝘁𝗵𝗶𝗻𝗴 𝗶 𝗰𝗿𝗲𝗮𝘁𝗲, 𝘀𝗼 𝗶𝗳 𝘆𝗼𝘂 𝘀𝗲𝗲 𝗮𝗻𝘆𝗼𝗻𝗲 𝘁𝗵𝗮𝘁 𝗹𝗼𝗼𝗸𝘀 𝗲𝘅𝗮𝗰𝘁𝗹𝘆 𝗹𝗶𝗸𝗲 𝗺𝗲, 𝗹𝗺𝗸 !
