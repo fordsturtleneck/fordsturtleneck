@@ -9,7 +9,7 @@
   <p align="center">  ☆ -【  𝟭𝟵 / /    𝘐𝘕𝘛𝘗-𝘛    / / ♎︎︎  】- ☆
   <p align="center"> 𝘪𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘤𝘩𝘪𝘭𝘭, 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘢𝘧𝘳𝘢𝘪𝘥 𝘵𝘰 𝘴𝘢𝘺 𝘩𝘪 !
   <p align="center"> i'm a bit standoffish at first because it takes time for me to get comfortable with someone new.
-  <p align="center"> 𝗽𝗹𝗲𝗮𝘀𝗲, 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀 𝗼𝗿 𝗽𝗼𝘀𝘁 𝘁𝗵𝗲𝗺 𝗮𝗻𝘆𝘄𝗵𝗲𝗿𝗲.
+  <p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀, 𝗽𝗿𝗼𝗳𝗶𝗹𝗲, 𝗼𝗿 𝗼𝗰𝘀. 𝗶 𝘄𝗼𝗿𝗸 𝗵𝗮𝗿𝗱 𝗼𝗻 𝗲𝘃𝗲𝗿𝘆𝘁𝗵𝗶𝗻𝗴 𝗶 𝗰𝗿𝗲𝗮𝘁𝗲, 𝘀𝗼 𝗶𝗳 𝘆𝗼𝘂 𝘀𝗲𝗲 𝗮𝗻𝘆𝗼𝗻𝗲 𝘁𝗵𝗮𝘁 𝗹𝗼𝗼𝗸𝘀 𝗲𝘅𝗮𝗰𝘁𝗹𝘆 𝗹𝗶𝗸𝗲 𝗺𝗲, 𝗹𝗺𝗸 !
   <p align="center"> ┆ ⸝⸝ 𝘽𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 ! ! ⸝⸝ ┆
   <p align="center"> / if i'm not responding, it's because i am afk. /
   <p align="center"> / i'd appreciate it if you don't flirt, kiss or cuddle me. ( it creeps me out, especially when i don't know you. ) /
