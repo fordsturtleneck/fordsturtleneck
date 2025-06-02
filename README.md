@@ -15,7 +15,6 @@
   <p align="center"> / i'd appreciate it if you don't flirt, kiss or cuddle me. ( it creeps me out, especially when i don't know you. ) /
   <p align="center">  / please, do not ask for my socials unless i give them to you myself. ^^" /
   <p align="center"> / do not project your ships + headcanons onto me. /
-  <p align="center"> / all users must be 18 or older. /
   <p align="center"> / i may cosplay, but that doesn't mean i'm open to 𝗥𝗣 ! /
    <p align="center"> / if you see me in-game walking around, do not chase me down. whisper me instead ! i'll be more willing to talk. / 
   <p align="center"> / do not talk to me if you're a bandwagoner, or just a casual fan of gravity falls. /
