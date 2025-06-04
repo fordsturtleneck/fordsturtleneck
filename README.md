@@ -24,7 +24,7 @@
   <p align="center"> bill cosplayers, bill kins, bill apologists, billford + billstan, proship/comship/darkship,
   <p align="center"> fujoshi + himedanshi, if under 18, if you victim blame ford or stan
   <p align="center"> 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥 / 𝙛𝙞𝙙𝙙𝙖𝙪𝙩𝙝𝙤𝙧 / 𝙛𝙞𝙙𝙙𝙡𝙚𝙨𝙩𝙖𝙣 - 𝙮𝙤𝙪 𝙢𝙖𝙮 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩, 𝙗𝙪𝙩 𝙞 𝙙𝙤 𝙣𝙤𝙩 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙝𝙚𝙖𝙧 𝙖𝙗𝙤𝙪𝙩 𝙮𝙤𝙪𝙧 𝙨𝙝𝙞𝙥𝙨.
-  <p align="center"> 𝘪 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺 𝘰𝘧𝘵𝘦𝘯. 𝘪𝘧 𝘪 𝘥𝘰, 𝘪𝘵 𝘮𝘢𝘺 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘮𝘺 𝘥𝘯𝘪 𝘰𝘳 𝘪 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘵𝘩𝘪𝘯𝘬 𝘰𝘶𝘳 𝘱𝘦𝘳𝘴𝘰𝘯𝘢𝘭𝘪𝘵𝘪𝘦𝘴 𝘮𝘦𝘴𝘩 𝘸𝘦𝘭𝘭 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. 𝘯𝘰 𝘩𝘢𝘳𝘥 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴 !
+  <p align="center"> 𝘪 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺. 𝘪𝘧 𝘪 𝘣𝘭𝘰𝘤𝘬 𝘺𝘰𝘶, 𝘪𝘵 𝘮𝘢𝘺 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘮𝘺 𝘥𝘯𝘪 𝘰𝘳 𝘪 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘵𝘩𝘪𝘯𝘬 𝘰𝘶𝘳 𝘱𝘦𝘳𝘴𝘰𝘯𝘢𝘭𝘪𝘵𝘪𝘦𝘴 𝘮𝘦𝘴𝘩 𝘸𝘦𝘭𝘭 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. 𝘯𝘰 𝘩𝘢𝘳𝘥 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴 !
   <p align="center"> and please, don't ask why i blocked someone or your friends. i do not owe anybody an explanation for my boundaries.
   <img width="460" height="300" src="https://github.com/user-attachments/assets/6d61a889-ced4-4033-92a7-dc4b77fb37d0">
   <p align="center"> ᯓ☆
